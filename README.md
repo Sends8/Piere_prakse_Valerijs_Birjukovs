@@ -1,0 +1,2 @@
+# Piere_prakse_Valerijs_Birjukovs
+Mans kvalifikacijas uzdevums
